@@ -31,6 +31,27 @@ Are you new to the world of open source but eager to make your mark? Look no fur
 
 #### Guidelines
 
+
+# Written some lines for my girl 
+
+Sometimes you don't have to confess,
+Sometimes your eyes just speak the words of your heart,
+Sometimes your smile reveals the pain and longing,
+Sometimes you don't have to confess,
+Sometimes you have to be patient them,
+Sometimes you have to be patient with yourself,
+Sometimes you don't have to confess,
+Sometimes they already know,
+Sometimes they were destined to never know,
+Sometimes you don't have to confess,
+Sometimes one-sided love is complete even being one-sided.
+Sometimes you have to confess,
+But I can't help but tell myself,
+Sometimes you don't have to confess.
+
+
+
+
 # koi BKL 🤡 hi hoga jo yha contribute nhi Krega . 🤑
 
 
@@ -157,6 +178,26 @@ first PR
 lol
 
 The One Who is commenting here will be the next CEO of google Ashii.
+
+# Written some lines for my girl 
+
+Sometimes you don't have to confess,
+Sometimes your eyes just speak the words of your heart,
+Sometimes your smile reveals the pain and longing,
+Sometimes you don't have to confess,
+Sometimes you have to be patient them,
+Sometimes you have to be patient with yourself,
+Sometimes you don't have to confess,
+Sometimes they already know,
+Sometimes they were destined to never know,
+Sometimes you don't have to confess,
+Sometimes one-sided love is complete even being one-sided.
+Sometimes you have to confess,
+But I can't help but tell myself,
+Sometimes you don't have to confess.
+
+
+
 
 
 # First PR
